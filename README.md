@@ -45,4 +45,4 @@
 ![](https://github.com/infinitynetwork13/infinitynetwork13/assets/155347164/e6a8e97d-73ae-44d0-b64c-f4186973a36e)
 
 ---
-![api](https://github.com/infinitynetwork13/infinitynetwork13/assets/155347164/660f06fb-529c-4632-9716-6ae079f741a7)
+![](https://visitcount.itsvg.in/api?id=infinitynetwork13&label=Profile%20Views&color=11&icon=5&pretty=true)
